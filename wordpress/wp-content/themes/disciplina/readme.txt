@@ -1,0 +1,1 @@
+Disciplina es una marca basada en la Ciudad de México. Se enfoca en la formulación y ejecución de ideas frescas y relevantes de diseño industrial-arquitectónico. Pensamos, diseñamos y producimos objetos decorativos y mobiliario. También trabajamos de forma colaborativa, ofreciendo servicios creativos de dirección de arte.
